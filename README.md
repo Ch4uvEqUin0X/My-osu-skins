@@ -1,4 +1,4 @@
-<img width="1920" height="1080" alt="screenshot058" src="https://github.com/user-attachments/assets/dcefde83-08c9-45c4-9d2e-8b846c9fd39c" /># My-osu-skins
+# My-osu-skins
 
 ## [Smabite](https://www.mediafire.com/file/pp1i02szi2x1qdb/smabite.osk/file)
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/37122260-c745-4fc2-9592-e47e806defd5" />
