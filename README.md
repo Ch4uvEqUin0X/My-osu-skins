@@ -7,7 +7,7 @@
 ## [Ch4uv Edit](https://www.mediafire.com/file/qwxnvfkq7hzpo4g/Ch4uv_EqUin0X_edit.osk/file)
 <img width="1920" height="1080" alt="screenshot054" src="https://github.com/user-attachments/assets/f87e3345-9f11-4c68-b638-ea6a21a45295" />
 
-## [Ch4uv edit『opaque](https://www.mediafire.com/file/zuh737uetoy9uno/Ch4uv_edit_%25E3%2580%258Eopaque%25E3%2580%258F.osk/file)
+## [Ch4uv edit『opaque](https://www.mediafire.com/file/zuh737uetoy9uno/Ch4uv_edit_%25E3%2580%258Eopaque%25E3%2580%258F .osk/file)
 <img width="1920" height="1080" alt="screenshot055" src="https://github.com/user-attachments/assets/6bffeaf6-96a2-4ba9-857d-f47464c2d656" />
 
 
